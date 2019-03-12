@@ -7,5 +7,3 @@ Até mais!
 Nova alteração
 
 Nova alteração 2
-
-Nova alteraçao 3
